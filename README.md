@@ -1,1 +1,0 @@
-# danchik-slaziet.github.io
